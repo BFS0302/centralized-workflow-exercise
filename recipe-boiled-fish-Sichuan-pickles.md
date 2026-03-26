@@ -1,0 +1,1 @@
+# Boiled Fish with Sichuan Pickles (酸菜鱼)<br/>## Ingredients<br/>- Grass carp fillet 300g<br/>- Sichuan pickles 100g<br/>- Ginger, garlic, chili peppers, Sichuan peppercorns<br/>- Cooking wine, starch, salt

@@ -1,4 +1,5 @@
     Ingredients 2 medium potatoes
+1 chili
 2 cloves garlic, minced
 1 small dried chili (optional)
 1 tablespoon vegetable oil
